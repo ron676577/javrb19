@@ -26,4 +26,4 @@
 结语  
 通过选择正规的平台观看日本AV影片，观众不仅能够享受到高清画质的影片，还能确保隐私和数据安全。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/ron676577/javrb19)</span>
